@@ -33,7 +33,7 @@ Made from the source code of [FREEBIE🇮🇳](t.me/FREEBIEGAMING)
 
 Special thanks to [this person](t.me/riya_robot_updates) for helping me.
 
-Deploy a bot like me [now](www.github.com/xditya/GroupManager)
+ANY QUERY? COME HERE [now](t.me/riya_robot_support)
 
 Click /help or Help button below to find out more about how to use me to my full potential.
 
