@@ -31,9 +31,7 @@ Activate Anti-spam protection in your BM by this command :
 
 Made from the source code of [FREEBIE🇮🇳](t.me/FREEBIEGAMING)
 
-Special thanks to [this channel](t.me/riya_robot_updates) for updating me.
-
-ANY QUERY? COME HERE [now](t.me/riya_robot_support)
+Special thanks to [this channel](t.me/bffmamager) for updating me.
 
 Click /help or Help button below to find out more about how to use me to my full potential.
 
